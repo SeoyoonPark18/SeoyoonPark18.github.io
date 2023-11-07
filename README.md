@@ -1,1 +1,0 @@
-# SeoyoonPark18.github.io
